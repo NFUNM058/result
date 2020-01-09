@@ -2,6 +2,9 @@
 
   前段时间，老师带领我们专业的学生前往广州的海外人才交流会，参观后我们受益匪浅同时也知道了自己的许多不足。
   
+![timg.jpg](https://upload-images.jianshu.io/upload_images/9610547-8f3299c82fa39076.jpg?imageMogr2/auto
+orient/strip%7CimageView2/2/w/1240)
+  
   首先海外人才交流会分为5个部分，分别为
   - 高端论坛
   - 展览推介
